@@ -1,2 +1,1 @@
-# leafysayswhy-fromgamebanana-
-Zizzy mod.
+ITS MY FIRST TIME MODDING,I WONT BE THAT GOOD!!!!!!
